@@ -1,0 +1,1 @@
+# Fatikchory-45MW-Solar-Power-Plant-Design-SLd-Layout-
